@@ -1,0 +1,9 @@
+HAI 1.2
+I HAS A NUMBER ITZ 0
+IM IN YR LOOP
+    
+    O RLY?
+        
+IM OUTTA YT LOOP
+
+KTHXBYE
